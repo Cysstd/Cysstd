@@ -1,6 +1,6 @@
 ### Hi there, I'm Cysstd 👋 
 
-## I'm a MC Plugin Creator, Server Manager and YouTube Creator!!
+## Cysstd — pronounced “Legend… wait, no, that’s just my WiFi password
 
 - 🌞 Morning Person? Only if “morning” means hitting snooze until my alarm cries.
 
